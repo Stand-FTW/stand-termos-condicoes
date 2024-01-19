@@ -1,0 +1,1 @@
+# stand-termos-condicoes
